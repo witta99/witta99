@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @witta99
+- 👀 I am currently a student at James Madison University in Harrisonburg, VA studying history!
